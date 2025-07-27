@@ -1,4 +1,4 @@
-### Hi, I'm CBecky 👋  
+### Hi, I'm Hanan 👋  
 I'm passionate about **tech** and **advocacy** — always excited to learn, build, and inspire change through innovation and community work.
 
 <!-- SOCIAL LINKS -->
